@@ -21,3 +21,6 @@ Collaborated with cross-functional teams to achieve project milestones
 I am passionate about staying up-to-date with the latest industry trends and technologies, ensuring that the solutions I deliver align with the best practices in web development.
 
 Feel free to connect with me to discuss potential collaborations or to explore how my skills can contribute to your projects.
+
+![image](https://github.com/kumarirani01/portfolio_rani1/assets/127591137/e3385151-3315-4868-abf3-02b48ff3bfd1)
+
